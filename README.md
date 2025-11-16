@@ -1,4 +1,4 @@
-# Mexc-kod-polecajacy-2025
+# Mexc kod polecajacy 2025
 Mexc kod polecający | mexc-mxusdc
 # MEXC kod polecający 2025 – dlaczego warto go użyć i jak dzięki niemu oszczędzać?
 
